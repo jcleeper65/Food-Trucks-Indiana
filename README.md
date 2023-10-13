@@ -1,3 +1,3 @@
-# Food Trucks Indiana
+# Food Trucks in Indianapolis
 
-Based on my research of the food trucks in the Indianapolis area, there is a wide selection of cuisines. 
+Based on my research of the food trucks in the Indianapolis area, there is a wide selection of cuisines. Many of these are not for people who are watching their weight. These Mexican, American, and Italian food trucks are loaded with carbs. These trucks would be great to warm up and fill up in the harsh winters. A lot of these trucks would be great for sporting events with most of them having grilled meats on their menus. A good portion of these trucks stay open late so a late-night food run is definitely a possibility. One thing that is saddening is the lack of breakfast food trucks. This could mean that there is a lack of events in the mornings. Overall, the food truck scene is strong and needs to be talked about to grow!
